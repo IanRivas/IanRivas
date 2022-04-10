@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rivas.ian.javier@gmail.com**
 
-- ⚡ Fun fact **I started to program making games**
+- ⚡ Fun fact **I started programming making games**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
